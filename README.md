@@ -1,4 +1,4 @@
-## Hi there 👋
+## Forever curious, Looking to learn and create  👋
 
 <!--
 **dezX0/dezX0** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
